@@ -6,7 +6,7 @@ que me transmitieron alegría.</br>
 Que veían tus ojos allí a la lejanía?</br>
 No puedo decirlo, es historia mía.
 </br></br>
-Con quien conversavas en las noches vacías?</br>
+Con quien conversabas en las noches vacías?</br>
 Te lo presentaría, pero es muy pronto todavía.</br>
 </br>
 Crees que lo hiciste bien?</br>
